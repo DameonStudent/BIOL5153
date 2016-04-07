@@ -53,3 +53,16 @@ _Tactical Psychological Operations Team Chief_
 * Planned and constructed an Afghani radio station to counter insurgent propaganda and improve relationships with targeted audiences.
 * Responsible for over $500,000 of specialized equipment in hazardous environments.  
 
+###Piney Ridge Center  
+######April 2007 - October 2011  
+_Psych Tech/Youth Care Worker_  
+* Supervised and counseled 25 children ages 16-18 to maintain safety and ensure a therapeutic environment.
+* Assisted residents with treatment plan and maintained notes on progress.
+* Chaperoned children on community outings and other off-site therapy events.  
+
+###Lowes Home Improvement  
+######July 2006 - April 2007  
+_Customer Service Associate_  
+* Assisted customers with product information and application needs in a retail environment.
+* Project selling 
+* Executed Lowes replenishment plan on the sales floor level.
