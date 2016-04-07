@@ -64,5 +64,5 @@ _Psych Tech/Youth Care Worker_
 ######July 2006 - April 2007  
 _Customer Service Associate_  
 * Assisted customers with product information and application needs in a retail environment.
-* Project selling 
+* Project selling and product upselling. 
 * Executed Lowes replenishment plan on the sales floor level.
