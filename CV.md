@@ -9,6 +9,7 @@
 * Succession Planning
 * Relationship Building
 * Building Cross-functional teams  
+
 ####Software/Computer Proficiencies:  
 * Visual Basic (VB or VBA)
 * Microsoft Office Suite (including Access and Excel)
